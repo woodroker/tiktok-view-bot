@@ -1,4 +1,4 @@
-<br/>
+BAJINGAN CMD KU ILANG SU. GOK <br/>
 <div align="center">
   
 # TikTok view bot
